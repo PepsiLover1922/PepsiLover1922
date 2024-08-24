@@ -2,9 +2,9 @@
 
 ~~~
 ABT ME:
-- self-taught artist and a writer
-- i like history from 19th to 20th century and im very nerdy abt it
-- PL/ENG, я сейчас учу русский
+—— self-taught artist and a writer
+—— i like history from 19th to 20th century and im very nerdy abt it
+—— PL/ENG, я сейчас учу русский
 ~~~
 ~~~
 PONY TOWN:
