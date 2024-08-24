@@ -11,7 +11,7 @@ ABT ME:
 —— self-taught artist and a writer
 —— i like history from 19th to 20th century and i'm very nerdy abt it
 —— PL/ENG, я сейчас учу русский
-—— i love my silly little ocs
+—— i love my silly little ocs i make lore for them
 ~~~
 ~~~
 PONY TOWN:
