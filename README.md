@@ -3,7 +3,7 @@
 <image src="https://64.media.tumblr.com/1aa30537d48497402d8cae81496b97ee/d2d2e653ce9b8f37-9e/s100x200/c8e11e02d2da5daf81b0fc395093e0a60407f954.gifv" width = 50px>
 </p>
 
-<image src="https://64.media.tumblr.com/97d014d065d39f90081d5b216da272a6/tumblr_pshgrperNB1vybt5o_1280.gifv" align="left" width = 150px alt="bouncy_balls">
+<image src="https://64.media.tumblr.com/97d014d065d39f90081d5b216da272a6/tumblr_pshgrperNB1vybt5o_1280.gifv" align="left" width = 130px alt="bouncy_balls">
 
 ~~~
 ABT ME:
