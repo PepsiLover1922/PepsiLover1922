@@ -29,7 +29,7 @@ telegram @killingthemercyy
 <p align="center">
 <image src="https://dl.glitter-graphics.com/pub/1122/1122889uis5gpr73p.gif">
 <a href="https://eiseis.straw.page/">
-<img src="https://dl.glitter-graphics.com/pub/2699/2699962g7lc5pygta.gif">
+LEAVE ME A DRAWING HERE
 </a>
 <image src="https://dl.glitter-graphics.com/pub/1122/1122889uis5gpr73p.gif">
 </p>
