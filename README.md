@@ -8,9 +8,10 @@ ABT ME:
 ~~~
 ~~~
 PONY TOWN:
-- i love cudz <3 
-- Whisper if [🌙 away]
-- DNIUF = [⛔️busy ]
+—— i love cudz <3 please cuddle with me
+—— im usually above docks or ch area 
+Whisper if [🌙 away]
+DNIUF = [⛔️busy]
 ~~~
 <p align="center">
 <a href="https://eiseis.straw.page/"> >>> Leave me a drawing here <<< <a>
