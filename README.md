@@ -18,6 +18,6 @@ DNIUF = [⛔️busy]
 
 <p align="center">
 <image src="https://dl.glitter-graphics.com/pub/1122/1122889uis5gpr73p.gif">
-<a href="https://eiseis.straw.page/">Leave me a drawing here </a>
+<a href="https://eiseis.straw.page/">leave me a drawing here plz??</a>
 <image src="https://dl.glitter-graphics.com/pub/1122/1122889uis5gpr73p.gif">
 </p>
