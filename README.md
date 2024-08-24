@@ -1,5 +1,7 @@
-<image src="https://dl.glitter-graphics.com/pub/507/507361o49yjx0gu6.gif" width = 250px>
-
+<p align="center">
+<image src="https://dl.glitter-graphics.com/pub/797/797250vxiyblcv7t.gif" width = 250px>
+</p>
+  
 ~~~
 ABT ME:
 —— self-taught artist and a writer
@@ -13,6 +15,9 @@ PONY TOWN:
 Whisper if [🌙 away]
 DNIUF = [⛔️busy]
 ~~~
+
 <p align="center">
-<a href="https://eiseis.straw.page/"> >>> Leave me a drawing here <<< <a>
+<image src="https://dl.glitter-graphics.com/pub/1122/1122889uis5gpr73p.gif">
+<a href="https://eiseis.straw.page/">Leave me a drawing here </a>
+<image src="https://dl.glitter-graphics.com/pub/1122/1122889uis5gpr73p.gif">
 </p>
