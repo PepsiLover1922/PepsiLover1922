@@ -4,10 +4,11 @@
   
 ~~~
 ABT ME:
+—— isfp
 —— self-taught artist and a writer
 —— i like history from 19th to 20th century and im very nerdy abt it
 —— PL/ENG, я сейчас учу русский
-—— isfp
+—— i love my sily little ocs
 my discord is @killingthemercy !
 ~~~
 ~~~
