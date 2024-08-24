@@ -7,7 +7,7 @@
 
 ~~~
 ABT ME:
-—— i'm introverted, it'll take a while before i warm up to you
+—— i'm introverted but once i get comfy i'm rlly outgoing
 —— self-taught artist and a writer
 —— i like history from 19th to 20th century and i'm very nerdy abt it
 —— PL/ENG, я сейчас учу русский
