@@ -8,7 +8,7 @@ ABT ME:
 —— self-taught artist and a writer
 —— i like history from 19th to 20th century and im very nerdy abt it
 —— PL/ENG, я сейчас учу русский
-—— i love my sily little ocs
+—— i love my silly little ocs
 my discord is @killingthemercy !
 ~~~
 ~~~
@@ -16,7 +16,7 @@ PONY TOWN:
 —— i love cudz <3 please cuddle with me
 —— im usually above docks or ch area 
 Whisper if [🌙 away]
-DNIUF = [⛔️busy]
+DNIUF = [⛔️ busy]
 ~~~
 
 <p align="center">
