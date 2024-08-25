@@ -15,8 +15,9 @@ ABT ME:
 ~~~
 ~~~
 PONY TOWN:
-—— td tt ct cd people stay away from me, i'll hunt you down
 —— i'm usually above docks or ch area !! come for cudz !!!!!
+—— interactions encouraged
+—— td tt ct cd people stay away from me, i'll hunt you down
 Whisper if [🌙 away]
 DNIUF = [⛔️ busy]
 ~~~
