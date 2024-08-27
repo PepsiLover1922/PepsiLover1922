@@ -10,13 +10,12 @@ ABT ME:
 —— i'm introverted but once i get comfy i'm rlly outgoing
 —— self-taught artist and a writer
 —— i like history from 19th to 20th century and i'm very nerdy abt it
-—— PL/ENG, я сейчас учу русский
+—— PL/ENG, я сейчас учу русский & im planning to learn german
 —— i love my silly little ocs i make lore for them
 ~~~
 ~~~
 PONY TOWN:
 —— i'm usually above docks or ch area !! come for cudz !!!!!
-—— interactions encouraged
 —— td tt ct cd people stay away from me, i'll hunt you down
 Whisper if [🌙 away]
 DNIUF = [⛔️ busy]
